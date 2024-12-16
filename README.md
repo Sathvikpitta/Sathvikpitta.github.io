@@ -1,1 +1,0 @@
-# Sathvikpitta.github.io
